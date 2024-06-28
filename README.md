@@ -11,8 +11,8 @@
 ### Friday
 ## ~ Core
 - Plank: on knees 30 sec
-- Crunches: 5 reps
-- Leg Raises: 3 reps
+- Crunches: 15 reps
+- Leg Raises: 15 reps
 - 1 min rest
 - _Repeat x3_ add sets as needed up to 5
 ### Saturday
